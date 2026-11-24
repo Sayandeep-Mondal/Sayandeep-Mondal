@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently pursuing my B.Tech degree on Information Technology (I.T) **from Heritage Institute of Technology (HITK))**
 
-- 📫 How to reach me **sayandeepmondal739@gmail.com**
+- 📫 How to reach me **sayandeep.mondal.edu@gmail.com**
 
 - ⚡ Fun fact **I think i am a bit funny as a team member 😂🤪**
 
